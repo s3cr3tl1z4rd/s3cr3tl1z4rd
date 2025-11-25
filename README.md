@@ -5,7 +5,6 @@
 - saying free palestine probably already drove these people away but you never know(/hj\)
 - interested in homestuck, (problem sleuth by extension,\) fnaf, the stormlight archive, vocaloid, args (if you have any good ones i'd love recs, dont rly care if theyre ongoing or finished\), cookie run kingdom, etc
 - used ren'py and godot before, still use them occasionally
-- not looking to work on anything rn
 
 <!---
 s3cr3tl1z4rd/s3cr3tl1z4rd is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
